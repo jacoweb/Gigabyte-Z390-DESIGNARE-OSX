@@ -1,0 +1,1 @@
+# Gigabyte-Z390-DESIGNARE-OSX
